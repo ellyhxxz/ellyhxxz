@@ -9,3 +9,5 @@ Meu nome é Gabrielly 💙
 ### Voce pode me contactar por 📧
 
 @ellyhxz
+
+![](https://media1.tenor.com/m/peucjgy5sEoAAAAC/euphonium-anime-thumbs-up.gif)
